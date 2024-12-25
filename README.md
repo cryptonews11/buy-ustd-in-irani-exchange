@@ -1,1 +1,0 @@
-# buy-ustd-in-irani-exchange
